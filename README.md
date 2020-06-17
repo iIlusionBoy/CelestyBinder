@@ -3,8 +3,8 @@
 
 ### Contact us
 
-- Contact with Milad Ranjbar : https://t.me/milad_zero
+- Contact with Mahdi illusion : https://t.me/Mehdiam_X
 
-- WebSite Ultra Security Team : https://ultrasec.org
+- Aparat Channel : https://www.aparat.com/Online_academy
 
-- Channel Telegram : https://t.me/UltraSecurity
+- Email for Contact : xtremedoto@gmail.com
